@@ -1,5 +1,5 @@
 # NEC-Crack
-$20 Flipping mod Not Enough Coins premium cracked
+$20 Minecraft Flipping mod Not Enough Coins premium cracked
 NotEnoughCoins Premium
 All the features of NotEnoughCoins Standard and...
 Full AFK

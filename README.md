@@ -1,3 +1,8 @@
+Discord:https://discord.me/nec
+
+
+
+
 # NEC-Crack
 $20 Minecraft Flipping mod Not Enough Coins premium cracked
 NotEnoughCoins Premium
